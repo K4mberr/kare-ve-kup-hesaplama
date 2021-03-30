@@ -1,0 +1,1 @@
+# kare-ve-kup-hesaplama
